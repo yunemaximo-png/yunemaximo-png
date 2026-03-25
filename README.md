@@ -11,7 +11,6 @@
  ## 𝕮𝖔𝖓𝖙𝖆𝖈𝖙 𝖒𝖊
  ☆𝙸𝚗𝚜𝚝𝚊𝚐𝚛𝚊𝚖: https://www.instagram.com/_yune.__?igsh=aGl6eXB6bWFkeWQy <br>
  ☆𝙴-𝚖𝚊𝚒𝚕:Ritafernanda0909@gmail.com / yune270909@gmail.com <br>
- ☆𝙳𝚒𝚜𝚌𝚘𝚛𝚍: Fyodorverso <br>
  
  
  
